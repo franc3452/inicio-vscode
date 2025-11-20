@@ -13,4 +13,5 @@ como tal recibio su segunda puesta al dia, esta si,
 cargada de novedades. A nivel estetico, se aumento la paleta 
 de colores de la carroceria y en las variantes con kit 
 de ensanche, iba a juego con 
-el resto.
+el resto. nuevos cambio en
+la teoria de la neuva rama
